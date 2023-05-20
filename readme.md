@@ -15,7 +15,7 @@
 
 <br/>
 
-Onde me encontrar!
+Onde me encontrar! 👇
 
 <div>
 <a href="https://www.instagram.com/joaopaulobr_ofc/" target="_blank">
